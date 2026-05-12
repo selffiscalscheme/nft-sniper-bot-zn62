@@ -1,4 +1,4 @@
-# 
+# advanced NFT Bot for nft sniper bot | floor-sweeping & mint-detection offers the most advanced nft sniper bot, with floor-sweeping and mint-detection. Ideal for professional NFT
 
 
 
